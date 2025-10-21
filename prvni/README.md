@@ -1,1 +1,0 @@
-# Vasek-gib.github.io
